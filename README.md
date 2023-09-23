@@ -1,7 +1,7 @@
 # Some random stuff
-[Telegram contact](t.me/glbkondrat)
+[Telegram contact](https://t.me/glbkondrat)
 
-[Telegram channel](t.me/breadbyglb)
+[Telegram channel](https://t.me/breadbyglb)
 
 [Steam](https://steamcommunity.com/id/NotUrProfile/)
 
